@@ -5,6 +5,7 @@
 - 📫 How to reach me ??
 - 😄 Pronouns: they/them
 - ⚡ Fun fact: I love cats!
+- 🌊 w2e enjoyer sometimes
 
 <!---
 nawtktqt/nawtktqt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
